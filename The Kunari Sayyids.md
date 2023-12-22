@@ -109,10 +109,10 @@ Similar to a perspective in a painting, what lies nearest to us holds the greate
 The same is to know about the nearest family connection, such as parents, grandparents and so on back in time – and that is what the following is about.
 
 Thanks to two independent genealogies family documents that shows a common line of ancestors from Sayyid Ali Termezi, known as Pir Baba, through his son, Mustafa, followed by Abdel-Wahab, Jamal-Uddin, Abbas, Abd-Allah, and Abdullatif to Sayyid Muhammad Nazif where two branches separate as follows: 
-The ruling line of the Sayyids as ‘Pad-shah of Kunar’ were Sayyid Baha-Uddin, Mahmud and the last ‘Pad-shah of Kunar’, Sayyid Ahmad. 
-The secondary line of the Sayyids were Sayyid Muhammad Hashim (being the full brother to Bah-Uddin), Muhammad Qassim and Muhammad Ja’far.
+- The ruling line of the Sayyids as ‘Pad-shah of Kunar’ were Sayyid Baha-Uddin, Mahmud and the last ‘Pad-shah of Kunar’, Sayyid Ahmad. 
+- The secondary line of the Sayyids were Sayyid Muhammad Hashim (being the full brother to Bah-Uddin), Muhammad Qassim and Muhammad Ja’far.
 
-From Pir Baba and his descendance the Internet played a more important role than Wikipedia since it became more specific looking for each person, and it must be admitted that besides only having the name of an ancestor, unfortunately more than that hasn’t been possible to find out so far – however that is a holding point for further research. 
+From Pir Baba and with his descendants, the Internet played a more important role than Wikipedia since it became more specific looking for each person, and it must be admitted that besides only having the name of an ancestor, unfortunately more than that has not been possible to find out so far – however that is a holding point for further research. 
 One lucky strike was when, by chance, I searched the Internet for ‘Sayyids of Kunar’, and it opened the following site “History of Pashtuns”.
 
 This site introduced me to two valuable sources, “A Political and Diplomatic History of Afghanistan, 1863-1901, p-69, by M. Hassan Kakar” and “State and Tribe in Nineteenth-Century Afghanistan, p-191-195, 205, by Christine Noelle”.
@@ -121,11 +121,11 @@ Let us explore the findings, starting with a map of the Eastern Province Kunar, 
 
 ![Kunar Valley](KunarValley.jpg)
 
-Pay attention to the former boundary line before 1871 and that of the [Durand Line](https://en.wikipedia.org/wiki/Durand_Line), established in the Hindu Kush on November 12, 1893, running through the tribal lands between Afghanistan and British India. Also, to the place names along the [Kunar River](https://en.wikipedia.org/wiki/Kunar_River) where you will find Kunar, initially the town of Kunar formed the seat of government of the Sayyids. At the time of Sayyid Muhammad Nazif, the town of *Pashat* had become the administrative centre during the Sayyids later rule, – and close to the east, on the other side of the Durand line, *Mitai*, or Mittai, where Sayyid Mahmud later found sanctuary offered by the British, as mentioned in Chapter Four on page 72, in M. N. Kakar, *‘Political and diplomatic history of Afghanistan 1863-1901’*. And further north the town of Chaga Serai, that later became Asadabad, today the capital of Kunar Province.
-
+Referring to the above map, the boundary lines in the Hindu Kush region before 1871 was distinct from the [Durand Line](https://en.wikipedia.org/wiki/Durand_Line), which was established on November 12, 1893, to demarcate the border between Afghanistan and British India through tribal lands. 
+Along the Kunar River, notable places include Kunar, the original administrative center of the Sayyids' government, and Pashat, which later took over as the administrative hub during Sayyid Muhammad Nazif's rule. East of the Durand Line, in British territory, is *Mitai* (or Mittai), where Sayyid Mahmud found refuge, as mentioned in M.N. Kakar's '*Political and Diplomatic History of Afghanistan 1863-1901*'. Further north, the town of Chaga Serai, later renamed [Asadabad](https://en.wikipedia.org/wiki/Asadabad,_Afghanistan), now serves as the capital of Kunar Province
 ___
 
-The following fives excerpts, respectively Ludwig Adamec’s ‘Who’s who of Afghanistan’, published in 1975, who is only dwelling on Sayyid Mahmud Pacha and his time as ruler without further mentioning the previous sayyid rulers of Kunar.
+The following fives excerpts, respectively Ludwig Adamec’s ‘Who’s who of Afghanistan’, published in 1975, who is only dwelling on Sayyid Mahmud Pacha and his time as ruler without further mentioning the previous Sayyid rulers of Kunar.
 • Excerpt from Ludwig W. Adamec: Who’s who of Afghanistan, p. 183-184, published 1975:
 
 “**Mahmud Pacha**, Sayyid [Sayyidah Mermone’s great grandfather]
