@@ -102,11 +102,11 @@ The prophet Muhammad continues with:
 As earlier stated, my first task was to find out the connection between the now living family members and the possible link to the prophet Muhammad, which in itself a challenge to tackle. 
 This quest became less strenuous than expected because Wikipedia could guide me step by step and generation by generation,  from the prophet Muhammad and his descendants over centuries down to Sayyid Ali Termezi, better known as [Pir Baba](https://en.wikipedia.org/wiki/Pir_Baba), our progenitor.
 
-Additionally Wikipedia inspired me to go back in time to learn more about the prophet’s ancestors consolidating the environmental picture of that time.
-This is important to me since details fade.
-Similar to a perspective painting, , what lies nearest to us holds the greatest significance, gradually lessening in importance as it extends outward, until it eventually fades into obscurity. 
+Through this research process, Wikipedia inspired me to go back in time to learn more about the prophet’s ancestors consolidating the environmental picture of that time.
+Without the details, it is hard to understand why some individuals went into exile or why certain alliances were formed, which is something I would like to share.
+The research material is presented in a reverse chronological order as one would follow down the roots of tree.
+Similar to a perspective in a painting, what lies nearest to us holds the greatest significance, gradually lessening in importance as it extends outward, until it eventually fades into obscurity. 
 The same is to know about the nearest family connection, such as parents, grandparents and so on back in time – and that is what the following is about.
-Without the details, it is hard to understand why some went into exile or why certain alliances were formed.
 
 Thanks to two independent genealogies family documents that shows a common line of ancestors from Sayyid Ali Termezi, known as Pir Baba, through his son, Mustafa, followed by Abdel-Wahab, Jamal-Uddin, Abbas, Abd-Allah, and Abdullatif to Sayyid Muhammad Nazif where two branches separate as follows: 
 The ruling line of the Sayyids as ‘Pad-shah of Kunar’ were Sayyid Baha-Uddin, Mahmud and the last ‘Pad-shah of Kunar’, Sayyid Ahmad. 
