@@ -6,15 +6,16 @@ Dedicated this work to my Children, and their Descendant, in Honor of their moth
 *Eric van Deventer*
 
 ## Foreword and acknowledgements
-What is in front of you is my second endeavor, which as been to chronicle the lives and contexts of the Sayyid of Kunar.
-The first endeavor was to fulfill a request from a family to find a connection from our family, the Sayyids of Kunar, back to the prophet Muhammad. 
+What is in front of you is my second endeavor on the topic, which has been to chronicle the lives and contexts of the Sayyid of Kunar.
+The first endeavor was to fulfill a request from a family member to find a connection from our family, the Sayyids of Kunar, back to the prophet Muhammad. 
 
-Thanks to the Internet and Wikipedia, tracing the lineage has been much easier and detailed than first imagined.
+Thanks to the Internet and Wikipedia, tracing the genealogy has been much easier and detailed than first imagined.
 Well, that is for the Arabian part of it.
-It is so thoroughly well done that here is no reason for us to challenge the period that contain the prophet himself, his ancestors, and the following Twelve Imams.
+It is so thoroughly well done that there is no reason for us to challenge the period that contain the prophet himself, his ancestors, and the following Twelve Imams.
 
-Sparser are the information around the progenitors of the Sayyids, Sayyid Ali Akbar (~868-926 CE), who who exiled to Termez, a town in today’s southern part of Uzbekistan along the Amu Darya River, that gave name to the descendant *Termezi*, meaning ‘of Termez’.
-Then, Sayyid Ali Termezi (1502-1583 CE), and his father, Sayyid Qanbar Ali, (pronounced Qambar) joined forces with Babur, the king of Kabulistan and later becoming the first Mughal emperor of India. Up to this point it is all on Wikipedia, however beyond this point it is sparse and I had to search and being fortunate to find authors dealing with Afghanistan’s history during that timeframe.
+Sparser are the information around the progenitors of the Sayyids, [Sayyid Ali Akbar](https://en.wikipedia.org/wiki/Ali_al-Akbar_ibn_Hasan) (~868-926 CE), who was exiled to Termez, a town in today’s southern part of Uzbekistan along the Amu Darya River, and gave the name to the descendant *Termezi*, meaning ‘of Termez’.
+Then, Sayyid Ali Termezi (1502-1583 CE), and his father, Sayyid Qanbar Ali, (pronounced Qambar) joined forces with Babur, the king of Kabulistan and later becoming the first Mughal emperor of India. 
+Up to this point it is all on Wikipedia, however beyond this point it is sparse and I had to search and being fortunate to find authors dealing with Afghanistan’s history during that timeframe.
 
 The herewith manuscript is nothing more than a collection of references to the works done by real field researchers and all praise is going to them and their work that enrich our knowledge.
 You will find a collection of URLs, such that it is best read on an Internet connected computer.
@@ -30,8 +31,8 @@ On a more personal level, I must highlight those who have been instrumental dire
 - Late professor, [Dr. Ludwig W. Adamec](https://en.wikipedia.org/wiki/Ludwig_W._Adamec) for his book: “Who’s who of Afghanistan”, 1975
 - Professor, [Dr. Malcolm E. Yapp](https://en.wikipedia.org/wiki/Malcolm_Yapp) for his work: “Strategies of British India: Britain, Iran, and Afghanistan, 1798-1850”, 1980.
 - Professor, [Dr. Ken Seigneurie](https://www.sfu.ca/wll/about/people/faculty/ken-seigneurie.html) for helping me to find and transmit the material needed for this assignment.
-- Professor, [Dr. Christine Nölle-Karimi](https://www.oeaw.ac.at/en/iran/institute/staff/research-staff/christine-noelle-karimi) for her detailed insight, and thesis, in her book “State and Tribe in Nineteenth-Century Afghanistan”, 1997
-- Late professor, [Dr. Hassan Kakar](https://www.kakarfoundation.com) for his book “A POLITICAL AND DIPLOMATIC HISTORY OF AFGHANISTAN 1863-1901”, 2006
+- Professor, [Dr. Christine Nölle-Karimi](https://www.oeaw.ac.at/en/iran/institute/staff/research-staff/christine-noelle-karimi) for her detailed insight, and thesis, in her book “[State and Tribe in Nineteenth-Century Afghanistan](https://www.routledge.com/State-and-Tribe-in-Nineteenth-Century-Afghanistan-The-Reign-of-Amir-Dost/Noelle/p/book/9781138982871?gclid=CjwKCAiAyp-sBhBSEiwAWWzTnj0Hb5F26NK-CycOPT-pjaYiQRwsrFKnlFZ2IFU-hHeJohn75m5-PxoCDrUQAvD_BwE)”, 1997
+- Late professor, [Dr. Hassan Kakar](https://www.kakarfoundation.com) for his book “[A Political and Diplomatic History of Afghanistan, 1863-1901](https://brill.com/display/title/12333?language=en)”, 2006
 
 ## The lineage of Sayyidah Tahera ‘Mermone’ bent Sayyid Abdullah Khan
 What you will find next is a repeat of the actual lineage taken from my first endeavor.
@@ -72,7 +73,7 @@ The following highlighted is dealing with progenitor, Sayyid Ali Termezi, and th
 32. Sayyid Muayyid Amir Ali, son of:
 33. Sayyid Abdul-Rahim, son of:
 34. Sayyid Mahmud Makki, son of:
-35. Sayyid Ali Akbar, son of: 			migrated Termez	         868-926 (62)
+35. [Sayyid Ali Akbar](https://en.wikipedia.org/wiki/Ali_al-Akbar_ibn_Hasan), son of: 			migrated Termez	         868-926 (62)
 11. Imam Hasan al-Askari, son of:				 	         846-874 (27)
 10. Imam Ali al-Hadi, son of:						         829-868 (38)
 9. Imam Muhammad al-Taqi, son of:					         811-835 (24)
@@ -99,7 +100,7 @@ The prophet Muhammad continues with:
 11. Fihr ibn Malik
 
 ## Introduction: 
-As earlier stated, my first task was to find out the connection between the now living family members and the possible link to the prophet Muhammad, which in itself a challenge to tackle. 
+As earlier stated, my first task was to find out the connection between the now living family members and the possible link to the prophet Muhammad, which in itself seemed a challenge to tackle. 
 This quest became less strenuous than expected because Wikipedia could guide me step by step and generation by generation,  from the prophet Muhammad and his descendants over centuries down to Sayyid Ali Termezi, better known as [Pir Baba](https://en.wikipedia.org/wiki/Pir_Baba), our progenitor.
 
 Through this research process, Wikipedia inspired me to go back in time to learn more about the prophet’s ancestors consolidating the environmental picture of that time.
